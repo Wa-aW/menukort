@@ -14,6 +14,12 @@ Cook Wa:
 
 Cook aW:
 
+Entrées:
+1. Salade: Tomato - Cucumber - Red onion - Avocado
+
+Dishes:
+
+1. Potatos - Sweet potatoes - Onions - Bacon - Saint Albray
 1. Salmon - pesto - pasta
 1. Chicken - pesto - pasta
 1. Salmon - Squah - Parmesan gratin
@@ -39,6 +45,7 @@ Cook aW:
 1. Burger / Boeuf sandwich
 1. Fransk hot dog
 1. Something new!
+
 
 Desserts:
 
