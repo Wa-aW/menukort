@@ -3,6 +3,7 @@
 Cook Wa:
 
 1. Lasagna
+1. Chicken pasta tiaman chili spinach
 1. Frikadelle
 1. Risengrød
 1. Havregrød
