@@ -10,7 +10,7 @@ Cook Wa:
 1. Karbonader Peas & carrots and meat
 1. Pita bread, tuna, corn
 1. Tacos
-1. Svensk pølseret
+1. Svensk pølseret - https://www.valdemarsro.dk/svensk-poelseret/
 
 
 Cook aW:
